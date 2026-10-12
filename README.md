@@ -1,1 +1,1 @@
-# AFK-LEAGUE-
+# AFK-LEAGUE-1
